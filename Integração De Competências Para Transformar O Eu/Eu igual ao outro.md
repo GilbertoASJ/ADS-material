@@ -1,0 +1,1 @@
+Link para o material: https://alt-5d152e0e8981d.blackboard.com/bbcswebdav/pid-10722933-dt-content-rid-119646222_1/courses/6977_12_40_BACKUP/Pasta%20da%20Disciplina/Rise/UNIDADE%203/content/index.html?one_hash=D531370D1DF340D2E4F1036EEF62FA37&f_hash=DB1A36B1910E0180ABDBC8C42C418792#/lessons/b_kKjy5JY_ZmTcpnZHeUZB5Ln8E9heIJ
